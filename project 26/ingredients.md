@@ -1,0 +1,1 @@
+The Ingredients Nedded For The Preperation Of Vanilla Cake Are Maida(1 cup),Butter(1 cup),Sugar(1 1/2 cup),Eggs(4),Baking Soda(1 tea spoon),Vanilla Essence(i table spoon).
